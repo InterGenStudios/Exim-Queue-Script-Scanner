@@ -1,4 +1,4 @@
-![alt text](https://intergenstudios.com/Downloads/cmsinstaller.png "CMS Installer")
+![alt text](https://avatars2.githubusercontent.com/u/12637371?v=3&s=400 "InterGenStudios")
 
 ---
 
